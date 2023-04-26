@@ -4,7 +4,7 @@
 
 | 序号 | 链接                                                |
 | ---- | --------------------------------------------------- |
-| 0    | https://aigpt1.xyz                                |
+| 0    | https://vps996.club                                |
 | 1    | https://Gpt.xcbl.cc                                |
 | 2    | https://Chat23.yqcloud.top                         |
 | 3    | https://Free.anzz.top                              |
